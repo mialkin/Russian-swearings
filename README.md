@@ -24,6 +24,12 @@ To work hard
 
 Shit
 
+## Д
+
+### Доебаться
+
+1. To start on someone, to provoke fight 2. To nag someone with unfair claims
+
 ## Е
 
 ### Ебалай
@@ -77,6 +83,12 @@ Face
 ### Нахуя́риться
 
 To get wasted, to get drunk
+
+## О
+
+### Охуе́ть
+
+1. To get stunned/amazed/peplexed by something 2. Get naughty, stuck up nose too hight, think to much about oneself.
 
 ## П
 
@@ -166,15 +178,31 @@ Fuckup, lazy/irresponsible person
 
 To steal
 
+### Съеба́ть
+
+Get out, get away quickly, leave place rapidly
+
 ## Х
 
-### Хуерга
+### Хуепу́тало
+
+A person who messes things up, lies or intrigues and brings others to this shit.
+
+### Хуерга́
 
 Some despised, negligible or not trustworthy person/situation/object.
 
 ### Хуета́
 
 1. Something easy or non worthy of importance, or an obvious lie/wrong believe 2. Thing of poor quality
+
+### Хуе́ть
+
+Be amazed by someone or something.
+
+### Хуёвенький
+
+1. Bad or weak
 
 ### Хуёвый
 
