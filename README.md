@@ -79,6 +79,14 @@ Faggot
 
 1. To talk 2. To lie
 
+### Пиздобол
+
+Liar
+
+### Пиздорез
+
+Veryd difficult situation
+
 ### Подъебать
 
 To make fun of someone, to fuck with someone
@@ -92,6 +100,10 @@ Fuckup, lazy/irresponsible person
 ### Разъебать
 
 1. To break apart, to destroy something 2. To scold someone 3. To kill group of enemy's soldiers at war 
+
+### Разъёбаный
+
+1. Broken 2. Loose
 
 ## Х
 
