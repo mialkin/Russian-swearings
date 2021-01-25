@@ -61,11 +61,11 @@ Faggot
 
 1. To lie 2. To talk too much
 
-### П_и_здить
+### пИздить
 
 1. To beat someone 2. To steal something
 
-### Пизд_и_ть
+### пиздИть
 
 1. To talk 2. To lie
 
