@@ -89,6 +89,10 @@ To make fun of someone, to fuck with someone
 
 Fuckup, lazy/irresponsible person
 
+### Разъебать
+
+1. To break apart, to destroy something 2. To scold someone 3. To kill group of enemy's soldiers at war 
+
 ## Х
 
 
