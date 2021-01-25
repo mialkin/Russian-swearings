@@ -44,6 +44,12 @@ To banish, to expel
 
 To work hard
 
+## Г
+
+### Говно́
+
+Shit
+
 ## Д
 
 ### Доеба́ться
@@ -302,6 +308,24 @@ Cunt. The same as "пизда", but, possibly, more despising
 
 To make fun of someone, to fuck with someone
 
+### Поеба́ть
+
+1. Doesn't fucking matter 2. To fuck someone
+
+### Поеба́ться
+
+To fuck
+
+### По́хуй
+
+Don't give a fuck
+
+### Похую́
+
+Don't give a fuck
+
+### Прихуеть
+
 ## Р
 
 ### Распи́здить
@@ -341,6 +365,10 @@ Fuckup, lazy/irresponsible person
 ### Спи́здить
 
 To steal
+
+### Схуёвиться
+
+To start feeling bad physically.
 
 ### Съеба́ть
 
