@@ -96,7 +96,7 @@ Crazy.
 
 ### Ебану́ться
 
-1. To lose any sense of reason 2. To fall down from height
+1. To get grazy, to lose any sense of reason 2. To fall down from height
 
 ### Еба́ный
 
@@ -133,6 +133,10 @@ Faces. Plural form of "ебло".
 ### Ёбнуть
 
 1. To strike/punch someone 2. To steal something 3. To drink alcohol 4. To kill someone
+
+### Ёбнуться
+
+To get grazy, to lose any sense of reason
 
 ## З
 
