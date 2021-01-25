@@ -39,6 +39,7 @@ To banish, to expel
 ### Въеба́ть
 
 1. To heavily beat someone 2. To drink alcohol 3. To steal something 4. To rob someone 
+
 ### Въёбывать
 
 To work hard
@@ -128,6 +129,26 @@ Faces. Plural form of "ебло".
 ### Ёбнуть
 
 1. To strike/punch someone 2. To steal something 3. To drink alcohol 4. To kill someone
+
+## З
+
+### Заеба́ть
+
+### Заеба́ться
+
+### Заёбывать
+
+### Заёбываться
+
+### Запи́здить
+
+### Запи́здиться
+
+### Запизде́ться
+
+### Захуя́рить
+
+### Захуя́чить
 
 ## Н
 
@@ -316,6 +337,8 @@ Be amazed/perplexed/stunned by someone or something.
 2. Man
 
 > А это что за хуй? — Who is this fuck?
+
+### Хуйнуть
 
 ### Хуйня́
 
