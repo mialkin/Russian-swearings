@@ -1,5 +1,25 @@
 # Russian swearings
 
+## Б
+
+### Блядина
+
+### Блядун
+
+### Блядь
+
+1. Slut
+
+> Она блядь — She's a slut.
+
+2. Fuck
+
+> Блядь, хули вы тут делает? — Fuck, what the hell are you doing here?
+
+> Блядь, меня заебало это! — Fuck, I got tired of this shit!
+
+### Блядство
+
 ## В
 
 ### Вы́ебать
@@ -29,6 +49,12 @@ Shit
 ### Доебаться
 
 1. To start on someone, to provoke fight 2. To nag someone with unfair claims
+
+### Долбоёб
+
+Fucking idiot.
+
+> Да он долбоёб, он может повести себя непредсказуемо. — He is a fucking idiot, he can act unpredictably.
 
 ## Е
 
@@ -68,6 +94,20 @@ Face
 
 ## Ё
 
+## Ёбаный
+
+Fucking.
+
+> Ёбаный стыд! — Fucking shame.
+
+> Ненавижу эту ёбаную погоду! — I hate this fucking weather!
+
+## Ёбла
+
+Faces. Plural form of "ебло".
+
+> Так, ёбла свои позакрывали быстро! — Shut your fucking mouthes up!
+
 ### Ёбнуть
 
 1. To strike/punch someone 2. To steal something 3. To drink alcohol 4. To kill someone
@@ -80,11 +120,21 @@ Face
 
 1. To steal 2. To kick someone's ass
 
+### Нахуй
+
+Fuck you.
+
+> Иди на хуй! — Fuck you!
+
 ### Нахуя́риться
 
 To get wasted, to get drunk
 
 ## О
+
+### Охуе́нный
+
+1. Fucking great/wonderful/beautiful/amazing. 2. Big, huge, loud.
 
 ### Охуе́ть
 
@@ -99,6 +149,12 @@ Faggot
 ### Пидора́с
 
 Faggot
+
+### Пидорасти́ческий
+
+Faggу.
+
+> Мне не нравятся эти узкие обтягивающие джинсы, они какие-то пидорастические. — I don't like those narrow, tight jeans, they're kind of faggy.
 
 ### Пидри́ла
 
@@ -156,13 +212,17 @@ A person (typically a man) who devotes considerable amount of his time and thoug
 
 Emotial sufferings of пиздострадальца.
 
+### Пиздятина
+
+Cunt. The same as "пизда", but, possibly, more despising
+
 ### Подъеба́ть
 
 To make fun of someone, to fuck with someone
 
 ## Р
 
-### Разъеба́й
+### Разъебай
 
 Fuckup, lazy/irresponsible person
 
@@ -180,7 +240,15 @@ To steal
 
 ### Съеба́ть
 
-Get out, get away quickly, leave place rapidly
+Get out, get away quickly, leave place rapidly.
+
+> Съебал отсюда нахуй! — Get the fuck out of here!
+
+> Събали отсюда! — Get lost!
+
+> Съебал! — Fuck off!
+
+> Я еле съебал от ментов! — I barely got away from police chase.
 
 ## Х
 
@@ -198,7 +266,7 @@ Some despised, negligible or not trustworthy person/situation/object.
 
 ### Хуе́ть
 
-Be amazed by someone or something.
+Be amazed/perplexed/stunned by someone or something.
 
 ### Хуёвенький
 
@@ -212,10 +280,32 @@ Be amazed by someone or something.
 
 1. Dick, cock
 
+> Можешь мой хуй отсосать! — You can suck my dick!
+
+2. Fuck. Contemptuous name of a person
+
+> А это что за хуй? — Who is this fuck?
+
 ### Хуйня́
 
-1. Something untrustworthy 2. Trifle
+1. Something untrustworthy
+
+> Да это хуйня! — That is a fucking bulshit!
+
+2. Trifle
+
+> Всё хуйня, не переживай. — It's not a big deal, don't worry about it.
+
+### Хули
+
+What/why
+
+> Хули ты мне раньше об этом не сказал? — Why the fuck didn't you tell me this long before?
+
+> Хули ты смотришь? — What the fuck are you looking at?
 
 ### Хуя́тина
 
 1. Big, physically strong and endangering man or an object.
+
+> А это что еще за хуятина? — Who/what that fuck is that?
