@@ -80,10 +80,6 @@ To get wasted, to get drunk
 
 ## П
 
-### Пиздобо́л
-
-Liar
-
 ### Пи́дор
 
 Faggot
@@ -102,7 +98,7 @@ Faggot
 
 ### Пиздану́ть
 
-1. Say something inappropriate/-ly 2. To throw a punch/kick 3. Steal something
+1. Say something in wrong/time and place, that under these circtumstances makes it sound inappropriate/hillarious. 2. To throw a punch/kick 3. Steal something
 
 ### Пиздану́ться
 
@@ -124,6 +120,14 @@ Faggot
 
 1. To talk 2. To lie
 
+### Пи́зднуть
+
+To steal
+
+### Пиздну́ть
+
+1. Say something in wrong/time and place, that under these circtumstances makes it sound inappropriate/hillarious.
+
 ### Пиздобо́л
 
 Liar
@@ -136,11 +140,11 @@ Veryd difficult situation
 
 A person (typically a man) who devotes considerable amount of his time and thoughts with some emotianal attachments, for example to a woman or to the past.
 
-### Пиздострадания
+### Пиздострада́ния
 
 Emotial sufferings of пиздострадальца.
 
-### Подъебать
+### Подъеба́ть
 
 To make fun of someone, to fuck with someone
 
@@ -158,13 +162,21 @@ Fuckup, lazy/irresponsible person
 
 1. Broken 2. Loose
 
-### Спиздить
+### Спи́здить
 
 To steal
 
 ## Х
 
-### Хуевый
+### Хуерга
+
+Some despised, negligible or not trustworthy person/situation/object.
+
+### Хуета́
+
+1. Something easy or non worthy of importance, or an obvious lie/wrong believe 2. Thing of poor quality
+
+### Хуёвый
 
 1. Bad 2. Sad, moody 3. Of poor quality
 
@@ -172,6 +184,10 @@ To steal
 
 1. Dick, cock
 
-### Хуйня
+### Хуйня́
 
 1. Something untrustworthy 2. Trifle
+
+### Хуя́тина
+
+1. Big, physically strong and endangering man or an object.
