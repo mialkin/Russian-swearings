@@ -313,7 +313,7 @@ Be amazed/perplexed/stunned by someone or something.
 
 > Можешь мой хуй отсосать! — You can suck my dick!
 
-2. Fuck. Contemptuous name of a person
+2. Man
 
 > А это что за хуй? — Who is this fuck?
 
