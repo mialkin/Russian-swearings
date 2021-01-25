@@ -81,7 +81,7 @@ Faggot
 
 ### Подъебать
 
-To make fun of someone 
+To make fun of someone, to fuck with someone
 
 ## Р
 
