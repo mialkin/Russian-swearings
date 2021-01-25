@@ -1,4 +1,4 @@
-# Russian swearings
+# Russian Swearings
 
 ## Х
 
