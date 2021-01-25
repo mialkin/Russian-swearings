@@ -1,6 +1,18 @@
-# Russian Swearings
+# Russian swearings
 
 ## Е
+
+## Ебало
+
+Face
+
+## Ебальник
+
+Face
+
+### Ебанина
+
+Suspiciously looking thing/proposal/enterprise 
 
 ### Ебануться
 
@@ -9,6 +21,10 @@
 ### Ебать
 
 1. To fuck
+
+### Еблет
+
+Face
 
 ## П
 
