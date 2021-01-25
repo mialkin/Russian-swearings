@@ -67,6 +67,14 @@ Faggot
 
 1. Cunt
 
+### Пиздануть
+
+1. Say something inappropriate/-ly 2. To throw a punch/kick 3. Steal something
+
+### Пиздатый
+
+1. Great, amazing, wonderful, beautiful 2. Of good quality
+
 ### Пиздеть
 
 1. To lie 2. To talk too much
@@ -107,6 +115,9 @@ Fuckup, lazy/irresponsible person
 
 ## Х
 
+### Хуевый
+
+1. Bad 2. Sad, moody 3. Of poor quality
 
 ### Хуй
 
