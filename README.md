@@ -310,6 +310,26 @@ To make fun of someone, to fuck with someone
 
 ## Р
 
+### Распи́здить
+
+To steal
+
+### Распизде́ться
+
+To come up talking a lot after keeping silence for a while.
+
+### Разъебашить
+
+To crush, to destroy, to annihilate, to kill.
+
+### Разхуя́рить
+
+To destroy.
+
+### Разхуячить
+
+1. To crush, to destroy, to annihilate, to kill. 2. To scold someone
+
 ### Разъеба́й
 
 Fuckup, lazy/irresponsible person
