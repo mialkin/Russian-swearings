@@ -56,6 +56,12 @@ Fucking idiot.
 
 > Да он долбоёб, он может повести себя непредсказуемо. — He is a fucking idiot, he can act unpredictably.
 
+### Дохуя
+
+A lot, too much
+
+> Мне кажется это будет дохуя. Забери часть денег назад. — I think it's going to be too much. Take some of the money back.
+
 ## Е
 
 ### Ебалай
@@ -244,7 +250,7 @@ Get out, get away quickly, leave place rapidly.
 
 > Съебал отсюда нахуй! — Get the fuck out of here!
 
-> Събали отсюда! — Get lost!
+> Съебали отсюда! — Get lost!
 
 > Съебал! — Fuck off!
 
@@ -254,7 +260,7 @@ Get out, get away quickly, leave place rapidly.
 
 ### Хуепу́тало
 
-A person who messes things up, lies or intrigues and brings others to this shit.
+A person who messes things up, lies or intrigues and involves others into this shit.
 
 ### Хуерга́
 
@@ -298,7 +304,7 @@ Be amazed/perplexed/stunned by someone or something.
 
 ### Хули
 
-What/why
+What/why the fuck
 
 > Хули ты мне раньше об этом не сказал? — Why the fuck didn't you tell me this long before?
 
