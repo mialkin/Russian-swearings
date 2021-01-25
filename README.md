@@ -322,6 +322,8 @@ Fuckup, lazy/irresponsible person
 
 1. Broken 2. Loose
 
+## С
+
 ### Спи́здить
 
 To steal
