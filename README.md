@@ -1,5 +1,11 @@
 # Russian Swearings
 
+## П
+
+### Пизда
+
+1. cunt
+
 ## Х
 
 
