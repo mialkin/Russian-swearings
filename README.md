@@ -2,9 +2,9 @@
 
 ## Б
 
-### Блядина
+### Бляди́на
 
-### Блядун
+### Бляду́н
 
 ### Блядь
 
@@ -18,7 +18,7 @@
 
 > Блядь, меня заебало это! — Fuck, I got tired of this shit!
 
-### Блядство
+### Бля́дство
 
 ## В
 
@@ -46,13 +46,13 @@ To work hard
 
 ## Г
 
-### Говно
+### Говно́
 
 Shit
 
 ## Д
 
-### Доебаться
+### Доеба́ться
 
 1. To start on someone, to provoke fight 2. To nag someone with unfair claims
 
@@ -66,7 +66,7 @@ Fucking idiot.
 
 To end up bad as the reason of acting stupid or showing off to much.
 
-### Дохуя
+### Дохуя́
 
 A lot, too much
 
@@ -74,11 +74,11 @@ A lot, too much
 
 ## Е
 
-### Ебалай
+### Ебала́й
 
 Dumb fuck
 
-### Ебало
+### Еба́ло
 
 Face
 
@@ -86,7 +86,7 @@ Face
 
 Face
 
-### Ебанина
+### Ебани́на
 
 Suspiciously looking thing/proposal/enterprise
 
@@ -96,7 +96,7 @@ Suspiciously looking thing/proposal/enterprise
 
 ### Еба́ный
 
-### Ебанько
+### Ебанько́
 
 Knockhead, dumb fuck, a person, who is used/learnt to act in a stupid way that brings him to trouble
 
@@ -158,7 +158,7 @@ Faces. Plural form of "ебло".
 
 1. To steal 2. To kick someone's ass
 
-### Нахуй
+### На́хуй
 
 Fuck you.
 
@@ -174,17 +174,17 @@ To get wasted, to get drunk
 
 Clean something neatly, properly.
 
-### Отпиздить
+### Отпи́здить
 
 To kick someone's ass
 
-### Отхуярить
+### Отхуя́рить
 
-### Отъебать
+### Отъеба́ть
 
 To fuck someone.
 
-### Отъебаться
+### Отъеба́ться
 
 To leave someone alone.
 
@@ -268,13 +268,13 @@ A person (typically a man) who devotes considerable amount of his time and thoug
 
 Emotial sufferings of пиздострадальца.
 
-### Пиздун
+### Пизду́н
 
 Liar.
 
 > Ну ты и пиздун! You are such a fucking liar!
 
-### Пиздятина
+### Пиздя́тина
 
 Cunt. The same as "пизда", but, possibly, more despising
 
@@ -284,7 +284,7 @@ To make fun of someone, to fuck with someone
 
 ## Р
 
-### Разъебай
+### Разъеба́й
 
 Fuckup, lazy/irresponsible person
 
@@ -322,7 +322,7 @@ A person who messes things up, lies or intrigues and involves others into this s
 
 Some despised, negligible or not trustworthy person/situation/object.
 
-### Хуесос
+### Хуесо́с
 
 Cocksucker.
 
@@ -352,7 +352,7 @@ Be amazed/perplexed/stunned by someone or something.
 
 > А это что за хуй? — Who is this fuck?
 
-### Хуйнуть
+### Хуйну́ть
 
 ### Хуйня́
 
@@ -364,7 +364,7 @@ Be amazed/perplexed/stunned by someone or something.
 
 > Всё хуйня, не переживай. — It's not a big deal, don't worry about it.
 
-### Хули
+### Ху́ли
 
 What/why the fuck
 
