@@ -26,6 +26,12 @@
 
 1. To fuck someone 2. To scold someone 2. To take victory over someone, to win
 
+### Выёбываться
+
+To show off a lot.
+
+> Да он выёбывается много, нужно поскромнее быть. He shows off a lot, he should be more modest.
+
 ### Вы́пиздить
 
 To banish, to expel
