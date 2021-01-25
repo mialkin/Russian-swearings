@@ -38,8 +38,7 @@ To banish, to expel
 
 ### Въеба́ть
 
-1. To heavily beat someone 2. To drink alcohol 3. To steal something
-
+1. To heavily beat someone 2. To drink alcohol 3. To steal something 4. To rob someone 
 ### Въёбывать
 
 To work hard
