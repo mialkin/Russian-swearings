@@ -170,13 +170,23 @@ To get wasted, to get drunk
 
 ## О
 
-## Отпиздить
+### Отпидарасить
+
+Clean something neatly, properly.
+
+### Отпиздить
 
 To kick someone's ass
 
-## Отъебать
+### Отхуярить
+
+### Отъебать
 
 To fuck someone.
+
+### Отъебаться
+
+To leave someone alone.
 
 ### Охуе́нный
 
@@ -311,6 +321,10 @@ A person who messes things up, lies or intrigues and involves others into this s
 ### Хуерга́
 
 Some despised, negligible or not trustworthy person/situation/object.
+
+### Хуесос
+
+Cocksucker.
 
 ### Хуета́
 
