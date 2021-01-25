@@ -149,6 +149,14 @@ To get wasted, to get drunk
 
 ## О
 
+## Отпиздить
+
+To kick someone's ass
+
+## Отъебать
+
+To fuck someone.
+
 ### Охуе́нный
 
 1. Fucking great/wonderful/beautiful/amazing. 2. Big, huge, loud.
