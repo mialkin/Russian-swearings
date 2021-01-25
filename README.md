@@ -196,7 +196,7 @@ To get wasted, to get drunk
 
 ## О
 
-### Отпидарасить
+### Отпидора́сить
 
 Clean something neatly, properly.
 
