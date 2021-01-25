@@ -57,6 +57,18 @@ Faggot
 
 1. Cunt
 
+### Пиздеть
+
+1. To lie 2. To talk too much
+
+### П_и_здить
+
+1. To beat someone 2. To steal something
+
+### Пизд_и_ть
+
+1. To talk 2. To lie
+
 ## Р
 
 ### Разъебай
