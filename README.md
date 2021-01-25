@@ -44,12 +44,6 @@ To banish, to expel
 
 To work hard
 
-## Г
-
-### Говно́
-
-Shit
-
 ## Д
 
 ### Доеба́ться
