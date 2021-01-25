@@ -82,7 +82,7 @@ Dumb fuck
 
 Face
 
-### Ебальник
+### Еба́льник
 
 Face
 
@@ -90,7 +90,11 @@ Face
 
 Suspiciously looking thing/proposal/enterprise
 
-### Ебануться
+### Eбану́тый
+
+Crazy.
+
+### Ебану́ться
 
 1. To lose any sense of reason 2. To fall down from height
 
