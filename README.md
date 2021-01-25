@@ -28,7 +28,7 @@
 
 ### Выёбываться
 
-To show off a lot.
+1. To show off a lot. 2. To act stupid.
 
 > Да он выёбывается много, нужно поскромнее быть. He shows off a lot, he should be more modest.
 
@@ -60,6 +60,10 @@ Shit
 Fucking idiot.
 
 > Да он долбоёб, он может повести себя непредсказуемо. — He is a fucking idiot, he can act unpredictably.
+
+### Довыёбыватья
+
+To end up bad as the reason of acting stupid or showing off to much.
 
 ### Дохуя
 
