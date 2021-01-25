@@ -1,10 +1,16 @@
 # Russian Swearings
 
+## Е
+
+### Ебать
+
+1. To fuck
+
 ## П
 
 ### Пизда
 
-1. cunt
+1. Cunt
 
 ## Х
 
