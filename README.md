@@ -142,21 +142,39 @@ To get grazy, to lose any sense of reason
 
 ### Заеба́ть
 
+To annoy someone.
+
 ### Заеба́ться
+
+To get tired.
 
 ### Заёбывать
 
+To annoy someone.
+
 ### Заёбываться
+
+To get tired.
 
 ### Запи́здить
 
+To kick someone's ass, to take victory, to defeat.
+
 ### Запи́здиться
+
+To start a fight.
 
 ### Запизде́ться
 
+To accidently say a lie while talking a lot, to blab out
+
 ### Захуя́рить
 
+1. To kick someone's ass. 2. To kill someone 3. Finish something, accomplish something
+
 ### Захуя́чить
+
+1. To kick someone's ass. 2. To kill someone 3. To build something
 
 ## Н
 
