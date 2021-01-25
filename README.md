@@ -1,5 +1,11 @@
 # Russian swearings
 
+## Г
+
+### Говно
+
+Shit
+
 ## Е
 
 ## Ебало
@@ -25,6 +31,12 @@ Suspiciously looking thing/proposal/enterprise
 ### Еблет
 
 Face
+
+## Ё
+
+### Ёбнуть
+
+1. To strike/punch someone 2. To steal something 3. To drink alcohol 4. To kill someone  
 
 ## П
 
