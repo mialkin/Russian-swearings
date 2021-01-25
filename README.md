@@ -225,6 +225,12 @@ A person (typically a man) who devotes considerable amount of his time and thoug
 
 Emotial sufferings of пиздострадальца.
 
+### Пиздун
+
+Liar.
+
+> Ну ты и пиздун! You are such a fucking liar!
+
 ### Пиздятина
 
 Cunt. The same as "пизда", but, possibly, more despising
