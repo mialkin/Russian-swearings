@@ -96,7 +96,9 @@ To fuck
 
 ### Ебле́т
 
-Face
+Fucking face
+
+> За такие слова ты можешь по еблету получить. You can get kicked into your fucking face for this words.
 
 ## Ё
 
