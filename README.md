@@ -45,6 +45,12 @@ Faggot
 
 1. Cunt
 
+## Р
+
+### Разъебай
+
+Fuckup, lazy/irresponsible person
+
 ## Х
 
 
