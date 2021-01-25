@@ -2,6 +2,10 @@
 
 ## Е
 
+### Ебануться
+
+1. To lose any sense of reason 2. To fall down from height
+
 ### Ебать
 
 1. To fuck
