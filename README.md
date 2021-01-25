@@ -1,5 +1,15 @@
 # Russian swearings
 
+## В
+
+### Выебать
+
+1. To fuck someone 2. To scold someone 2. To take victory over someone, to win
+
+### Въебать
+
+1. To heavily beat someone 2. To drink alcohol 3. To steal something
+
 ## Г
 
 ### Говно
@@ -68,6 +78,10 @@ Faggot
 ### пиздИть
 
 1. To talk 2. To lie
+
+### Подъебать
+
+To make fun of someone 
 
 ## Р
 
