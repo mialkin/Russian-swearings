@@ -293,6 +293,10 @@ Faggot
 
 1. To lie 2. To talk too much
 
+### Пиздёж
+
+Lie
+
 ### Пи́здить
 
 1. To beat someone 2. To steal something
