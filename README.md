@@ -275,7 +275,13 @@ Faggot
 
 ### Пизда́
 
-1. Cunt 2. Woman
+1. Cunt 
+ 
+2. Woman 
+
+3. Difficult, dangerous, threatening state, to be "fucked".
+
+> Лавина прямо на них идёт, им пизда. Avalanche is moving right to them, they are fucked.
 
 ### Пиздану́ть
 
