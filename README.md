@@ -38,7 +38,7 @@ To banish, to expel
 
 ### Въеба́ть
 
-1. To heavily beat someone 2. To drink alcohol 3. To steal something 4. To rob someone 
+1. To heavily beat someone 2. To drink alcohol 3. To steal something 4. To rob someone
 
 ### Въёбывать
 
@@ -52,19 +52,32 @@ Shit
 
 ## Д
 
+### Довыёбыватья
+
+To end up bad as the reason of acting stupid or showing off to much.
+
 ### Доеба́ться
 
 1. To start on someone, to provoke fight 2. To nag someone with unfair claims
 
+### Долбоебизм
+
+Fucking idiocy, imbecility.
+
 ### Долбоёб
 
-Fucking idiot.
+Fucking idiot, imbecile.
 
-> Да он долбоёб, он может повести себя непредсказуемо. — He is a fucking idiot, he can act unpredictably.
+> Да он долбоёб, он может повести себя непредсказуемо. — He is a fucking idiot, he can act 
+unpredictably.
 
-### Довыёбыватья
+## Допизди́ться
 
-To end up bad as the reason of acting stupid or showing off to much.
+To talk to much shit to the point when your ass will start getting kicked.
+
+## Допизды́
+
+Don't give a fuck about something. Be indifferent to something, don't matter.
 
 ### Дохуя́
 
@@ -99,6 +112,8 @@ Crazy.
 1. To get grazy, to lose any sense of reason 2. To fall down from height
 
 ### Еба́ный
+
+1. Shitty, of low quality
 
 ### Ебанько́
 
@@ -148,9 +163,17 @@ To annoy someone.
 
 To get tired.
 
+### Заеби́сь
+
+Very good.
+
+### Заёбистый
+
+1. Causing a lot of trouble/pain/difficulty/tension 2. Complex, complicated
+
 ### Заёбывать
 
-To annoy someone.
+To annoy someone with something.
 
 ### Заёбываться
 
@@ -180,9 +203,11 @@ To accidently say a lie while talking a lot, to blab out
 
 ### Напизди́ть
 
+To lie to someone.
+
 ### Напи́здить
 
-1. To steal 2. To kick someone's ass
+1. To kick someone's ass 2. To steal
 
 ### На́хуй
 
@@ -194,17 +219,23 @@ Fuck you.
 
 To get wasted, to get drunk
 
+### Нахуя́читься
+
+To get wasted, to get drunk
+
 ## О
 
 ### Отпидора́сить
 
-Clean something neatly, properly.
+1. Clean something properly, put things in order. 2. To beat someone
 
 ### Отпи́здить
 
 To kick someone's ass
 
 ### Отхуя́рить
+
+To kick someone's ass
 
 ### Отъеба́ть
 
@@ -318,11 +349,11 @@ To fuck
 
 ### По́хуй
 
-Don't give a fuck
+Don't give a fuck about something. Be indifferent to something, don't matter.
 
 ### Похую́
 
-Don't give a fuck
+Don't give a fuck about something. Be indifferent to something, don't matter.
 
 ### Прихуеть
 
@@ -336,7 +367,7 @@ To steal
 
 To come up talking a lot after keeping silence for a while.
 
-### Разъебашить
+### Разъеба́шить
 
 To crush, to destroy, to annihilate, to kill.
 
@@ -344,7 +375,7 @@ To crush, to destroy, to annihilate, to kill.
 
 To destroy.
 
-### Разхуячить
+### Разхуя́чить
 
 1. To crush, to destroy, to annihilate, to kill. 2. To scold someone
 
