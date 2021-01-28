@@ -4,7 +4,11 @@
 
 ### Бляди́на
 
+Whore.
+
 ### Бляду́н
+
+Whoremonger
 
 ### Блядь
 
@@ -275,9 +279,9 @@ Faggot
 
 ### Пизда́
 
-1. Cunt 
+1. Cunt
  
-2. Woman 
+2. Woman
 
 3. Difficult, dangerous, threatening state, to be "fucked".
 
@@ -365,7 +369,9 @@ Don't give a fuck about something. Be indifferent to something, don't matter.
 
 Don't give a fuck about something. Be indifferent to something, don't matter.
 
-### Прихуеть
+### Прихуе́ть
+
+To get stunned, bevildered, staggered by something.
 
 ## Р
 
