@@ -18,7 +18,7 @@ Whoremonger
 
 2. Fuck
 
-> Блядь, хули вы тут делает? — Fuck, what the hell are you doing here?
+> Блядь! — Fuck!
 
 > Блядь, меня заебало это! — Fuck, I got tired of this shit!
 
@@ -64,7 +64,7 @@ To end up bad as the reason of acting stupid or showing off to much.
 
 1. To start on someone, to provoke fight 2. To nag someone with unfair claims
 
-### Долбоебизм
+### Долбоеби́зм
 
 Fucking idiocy, imbecility.
 
@@ -72,14 +72,13 @@ Fucking idiocy, imbecility.
 
 Fucking idiot, imbecile.
 
-> Да он долбоёб, он может повести себя непредсказуемо. — He is a fucking idiot, he can act 
-unpredictably.
+> Да он долбоёб, он может повести себя непредсказуемо. — He is a fucking idiot, he can act unpredictably.
 
-## Допизди́ться
+### Допизди́ться
 
 To talk to much shit to the point when your ass will start getting kicked.
 
-## Допизды́
+### Допизды́
 
 Don't give a fuck about something. Be indifferent to something, don't matter.
 
@@ -87,9 +86,13 @@ Don't give a fuck about something. Be indifferent to something, don't matter.
 
 A lot, too much
 
-> Мне кажется это будет дохуя. Забери часть денег назад. — I think it's going to be too much. Take some of the money back.
+> Мне кажется этого будет дохуя. Забери, пожалуйста, часть денег назад. — I think it's going to be too fucking much. Please, take some of the money back.
 
 ## Е
+
+### Ебала́
+
+Something suspicious, not credible.
 
 ### Ебала́й
 
@@ -135,7 +138,7 @@ Fucking face
 
 ## Ё
 
-## Ёбаный
+### Ёбаный
 
 Fucking.
 
@@ -143,7 +146,7 @@ Fucking.
 
 > Ненавижу эту ёбаную погоду! — I hate this fucking weather!
 
-## Ёбла
+### Ёбла
 
 Faces. Plural form of "ебло".
 
@@ -162,6 +165,8 @@ To get grazy, to lose any sense of reason
 ### Заеба́ть
 
 To annoy someone.
+
+> Ты меня заебал! — I got fucking tired of you!
 
 ### Заеба́ться
 
@@ -327,6 +332,16 @@ To steal
 
 Liar
 
+### Пиздобо́лить
+
+1. To lie.
+
+> Он пиздоболит — He lies.
+
+2. To talk too much/loud to the point when you are disturbing someone's listening or sleeping.
+
+> Хорош пиздоболить, дайте телевизор посмотреть, ничего не слышно! — Enough talking, let me watch TV, I can't hear jack shit!
+
 ### Пиздоре́з
 
 Veryd difficult situation
@@ -372,6 +387,22 @@ Don't give a fuck about something. Be indifferent to something, don't matter.
 ### Прихуе́ть
 
 To get stunned, bevildered, staggered by something.
+
+### Проеба́ть
+
+To lose something or someone.
+
+### Проеба́ться
+
+### Проёбываться
+
+To lean away from doing job.
+
+> Хватит проебываться — работайте!
+
+### Пропизде́ться
+
+1. To slip the truth from the tounge accidently, when lying before. 2. To speak yourself out.
 
 ## Р
 
