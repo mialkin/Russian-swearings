@@ -232,6 +232,17 @@ To get wasted, to get drunk
 
 To get wasted, to get drunk
 
+### Нихуёво
+
+Not bad
+
+### Нихуя́
+
+noun 1. Nothing
+interjection 1. Wow!
+
+### Нихуя́ себе
+
 ## О
 
 ### Отпидора́сить
